@@ -1,1 +1,1 @@
-# Cv realice este trabajo con el poco conocimiento que tengo
+# Cv Gisela Bianchi trabajo final Frontend Argentina Programa 4.0
